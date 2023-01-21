@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Aslı Nur
-- 👀 I’m interested in nature walks, photography, listenin music, playing chess
+- 👀 I’m interested in nature walks, photography, listening music, playing chess
 - 🌱 I’m currently learning German as a second language and programming with c 
 - 📫 How to reach me is that link https://twitter.com/asliytas
 
